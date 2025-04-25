@@ -21,7 +21,6 @@ Email:marziehlorzadedezfoli@gmail.com
 
 
 
-telegram:@Informatik78
 
 
 
